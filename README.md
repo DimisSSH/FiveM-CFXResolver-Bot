@@ -3,7 +3,6 @@
 - 💰 Source Price: 15$ PayPal / 20$ Paysafe / 10$ BTC
 
 
-# DM TO BUY: Dimis迪#1821 #
 Showcase Screenshots:
 
 ![Help Command](https://cdn.discordapp.com/attachments/924399570329427988/924399698196959302/unknown.png)
